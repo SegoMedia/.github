@@ -1,4 +1,4 @@
-# Pleased to meet you! We're Sego Media Group.
+# Pleased to meet you! We're Sego Media.
 
 ### A US-based, full-service event consulting company and rental house.
 
